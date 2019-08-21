@@ -1,2 +1,4 @@
 # hello-world
-加油
+This github!!
+what?
+i love allblue.com
